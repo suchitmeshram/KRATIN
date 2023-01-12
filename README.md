@@ -4,15 +4,26 @@ There are many ways through which we can help Sunita Sharma 65-year-old women. O
 
 Here is a daily routine I have made,
 
-Wake up at 6:00 am
+Wake up at 6:00 am.
+
 Take a walk for 30 min i.e., 6:15 -6:45am.
+
 Yoga or warmup exercise for 30 min (7:00-7:30am)
+
 Light Breakfast at 9:00 am
+
 Small walk for 10 min (9:40-9:50am) if breakfast take 30 min
+
 Lunch at 1:00pm
+
 Walk for 10 min (2:10-2:20pm) if lunch takes an hour
+
 Take a rest or meet with friends or do any work if they want till 5pm
+
 Evening snacks and walk from 5:00-5:40pm
+
 Dinner at 8:00pm, dinner should be light
+
 Take a walk for 10-15 min
+
 Go to bed till 9:30 pm (sleep).
